@@ -11,3 +11,4 @@ https://www.midjourney.com/jobs/60b0d40e-8a50-41aa-92d5-d48e4f1297bf?index=0
 
 
 https://www.midjourney.com/jobs/1f856cf6-1584-4a18-a7e4-f536a7fd9343?index=0
+https://www.midjourney.com/jobs/84801fba-7c4e-4f07-b139-78264a51ee8a?index=0
