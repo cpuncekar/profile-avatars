@@ -28,6 +28,9 @@ https://www.midjourney.com/jobs/322d3507-d63c-425f-88fd-da4030171352?index=0
 https://www.midjourney.com/jobs/1d1fe589-be3b-4bca-9c16-817af5fc0759?index=0
 https://www.midjourney.com/jobs/0b409e95-9271-4315-9dcb-44057efa4a3b?index=0
 
+
+https://www.midjourney.com/jobs/c4f981a3-6b68-405e-983b-7e6c64485a3d?index=0
+
 https://www.midjourney.com/jobs/95f23c61-bb33-401c-8cc5-8fce8831d3ef?index=0
 
 
