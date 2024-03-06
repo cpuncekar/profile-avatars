@@ -7,7 +7,7 @@ image for a blog, green and white color scheme, professional attire, lifestyle, 
 https://www.midjourney.com/jobs/16816518-9e68-4522-9a87-4c853ff80482?index=0
 https://www.midjourney.com/jobs/61431023-1ba9-4d21-a386-324667430bf4?index=0
 https://www.midjourney.com/jobs/60b0d40e-8a50-41aa-92d5-d48e4f1297bf?index=0
-
+https://www.midjourney.com/jobs/3812d374-32a3-4b09-93b4-300201291322?index=0
 
 https://www.midjourney.com/jobs/a8f9bb6e-d12a-4f49-8cf4-a55df8c0531b?index=0
 https://www.midjourney.com/jobs/1f856cf6-1584-4a18-a7e4-f536a7fd9343?index=0
