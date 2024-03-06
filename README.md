@@ -36,11 +36,12 @@ https://www.midjourney.com/jobs/dd8b31db-1b91-4c4a-b15f-4d63494103dd?index=0
 
 
 More updates
-https://www.midjourney.com/jobs/a4be767f-de13-45c0-9671-ccf5a99388f0
-
+https://www.midjourney.com/jobs/3556c4a9-d8ad-43f4-872f-42ccd2b8fc12
+https://www.midjourney.com/jobs/49ac6f10-0199-4cf2-bcd0-c999e4bbd2df
 https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0
-https://www.midjourney.com/jobs/95f23c61-bb33-401c-8cc5-8fce8831d3ef?index=0
-
+https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0
+https://www.midjourney.com/jobs/14abe59e-adbe-41a5-9242-8997c2c6ba51?index=0
+https://www.midjourney.com/jobs/e1655cdd-b61a-4689-ae5f-a14d8e49c0b4
 
 
 https://www.midjourney.com/jobs/14abe59e-adbe-41a5-9242-8997c2c6ba51?index=0
