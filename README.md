@@ -64,4 +64,9 @@ A happy Peruvian Latin American designer, with a light grey blouse, between 46 y
 https://www.midjourney.com/jobs/e6f0b7cb-4b6e-4072-b18c-43b07f3e26c3
 
 
+A happy light-skinned Spanish IT Support manager, with a light grey t-shirt, 32 years old, well groomed, well-combed hair, solid background in #DBE0EE, bright cold light
+https://www.midjourney.com/jobs/c5ed5b07-728e-4379-b98a-48ed9485a7eb
+
+
+
 Lighting store from the outside, with the text "Lighting Showroom". The weather is daytime. Frontal view, displaying Lighting products and furniture in windows. Ultra-realistic, mid-century modern style. 
