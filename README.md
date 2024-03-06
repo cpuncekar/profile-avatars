@@ -13,7 +13,7 @@ https://www.midjourney.com/jobs/a8f9bb6e-d12a-4f49-8cf4-a55df8c0531b?index=0
 https://www.midjourney.com/jobs/1f856cf6-1584-4a18-a7e4-f536a7fd9343?index=0
 https://www.midjourney.com/jobs/84801fba-7c4e-4f07-b139-78264a51ee8a?index=0
 
-
+https://www.midjourney.com/jobs/ffad22d8-d9df-49e5-98f6-685c761859d5?index=0
 https://www.midjourney.com/jobs/3812d374-32a3-4b09-93b4-300201291322?index=0
 https://www.midjourney.com/jobs/14abe59e-adbe-41a5-9242-8997c2c6ba51?index=0
 https://www.midjourney.com/jobs/0aba15ec-fe52-4aa6-b56d-a9accd685b76?index=0
