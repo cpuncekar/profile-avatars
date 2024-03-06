@@ -49,4 +49,8 @@ https://www.midjourney.com/jobs/7577bbf8-ae07-423f-842d-9938ac2d38a1
 
 https://www.midjourney.com/jobs/14abe59e-adbe-41a5-9242-8997c2c6ba51?index=0
 
+
+A happy Peruvian Latin American designer, with a light grey blouse, between 25 and 30 years old, well groomed, well combed, straight hair,she is an ugly woman ​, background in #DBE0EE, bright cold light 
+https://www.midjourney.com/jobs/d021b86d-d612-472b-aa0f-441817039d7e
+
 Lighting store from the outside, with the text "Lighting Showroom". The weather is daytime. Frontal view, displaying Lighting products and furniture in windows. Ultra-realistic, mid-century modern style. 
