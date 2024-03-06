@@ -34,6 +34,10 @@ https://www.midjourney.com/jobs/afdc30e7-08cb-4e5e-8fbf-d45a49e059a4?index=0
 https://www.midjourney.com/jobs/dd8b31db-1b91-4c4a-b15f-4d63494103dd?index=0
 
 
+
+More updates
+https://www.midjourney.com/jobs/a4be767f-de13-45c0-9671-ccf5a99388f0
+
 https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0
 https://www.midjourney.com/jobs/95f23c61-bb33-401c-8cc5-8fce8831d3ef?index=0
 
