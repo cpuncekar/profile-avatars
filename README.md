@@ -42,4 +42,7 @@ https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0
 https://www.midjourney.com/jobs/95f23c61-bb33-401c-8cc5-8fce8831d3ef?index=0
 
 
+
+https://www.midjourney.com/jobs/14abe59e-adbe-41a5-9242-8997c2c6ba51?index=0
+
 Lighting store from the outside, with the text "Lighting Showroom". The weather is daytime. Frontal view, displaying Lighting products and furniture in windows. Ultra-realistic, mid-century modern style. 
