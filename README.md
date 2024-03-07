@@ -33,7 +33,7 @@ https://www.midjourney.com/jobs/c4f981a3-6b68-405e-983b-7e6c64485a3d?index=0
 https://www.midjourney.com/jobs/afdc30e7-08cb-4e5e-8fbf-d45a49e059a4?index=0
 https://www.midjourney.com/jobs/dd8b31db-1b91-4c4a-b15f-4d63494103dd?index=0
 
-
+https://www.midjourney.com/jobs/33001666-ff35-41b5-8b9d-d8366edc0a1c?index=0
 
 More updates
 https://www.midjourney.com/jobs/3556c4a9-d8ad-43f4-872f-42ccd2b8fc12
