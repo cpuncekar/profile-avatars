@@ -71,8 +71,11 @@ https://www.midjourney.com/jobs/c5ed5b07-728e-4379-b98a-48ed9485a7eb
 
 Lighting store from the outside, with the text "Lighting Showroom". The weather is daytime. Frontal view, displaying Lighting products and furniture in windows. Ultra-realistic, mid-century modern style. 
 
-
-
-
+Guy in a suit
 photo of a normal weighted man dressed in suit and tie businessman with arms folded front
 https://www.midjourney.com/jobs/3d146bbe-9bd3-4299-86df-07f2f89fded5?index=0
+
+Selfie Natural Photo
+photo of female nurse taking a selfie in scrubs, with her hair up in a headband, phone photo posted to Reddit in the style of the nurse.
+https://www.midjourney.com/jobs/04e5a788-881d-4832-97ee-12c95cb2dd5f?index=0
+
