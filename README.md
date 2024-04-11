@@ -2,6 +2,9 @@
 Profile Images for Project
 https://www.midjourney.com/explore?tab=hot
 
+Corporate handshake, detailed view of two business professionals in a moment of agreement, skyscraper office background, symbolizing successful negotiation
+https://www.midjourney.com/jobs/7a7414a3-73f4-4779-ac52-4ab20cf8fa55?index=0
+
 
 image for a blog, green and white color scheme, professional attire, lifestyle, person standing with rms crossed, happy, real estate agent, 8k UHD,
 https://www.midjourney.com/jobs/16816518-9e68-4522-9a87-4c853ff80482?index=0
