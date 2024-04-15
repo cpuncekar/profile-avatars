@@ -1,6 +1,13 @@
 # profile-avatars
 Profile Images for Project
+
+What is Hot and/or Trendy _ Midjourney
 https://www.midjourney.com/explore?tab=hot
+
+
+Top Day / Top Images _ Midjourney
+https://www.midjourney.com/explore?tab=top
+
 
 Corporate handshake, detailed view of two business professionals in a moment of agreement, skyscraper office background, symbolizing successful negotiation
 https://www.midjourney.com/jobs/7a7414a3-73f4-4779-ac52-4ab20cf8fa55?index=0
