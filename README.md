@@ -1,4 +1,8 @@
 # profile-avatars
+## Profile images for projects
+
+Using Midjourney create profile images for a company's team member pages
+
 Profile Images for Project
 
 What is Hot and/or Trendy _ Midjourney
