@@ -22,7 +22,7 @@ https://www.midjourney.com/jobs/16816518-9e68-4522-9a87-4c853ff80482?index=0
 ![0_3_sales_person_professional_image](https://github.com/cpuncekar/profile-avatars/assets/12686549/beda9489-6444-4c61-a005-b8a1e4325677)
 
 
-
+https://www.midjourney.com/jobs/61431023-1ba9-4d21-a386-324667430bf4?index=0
 https://www.midjourney.com/jobs/61431023-1ba9-4d21-a386-324667430bf4?index=0
 https://www.midjourney.com/jobs/60b0d40e-8a50-41aa-92d5-d48e4f1297bf?index=0
 https://www.midjourney.com/jobs/3812d374-32a3-4b09-93b4-300201291322?index=0
