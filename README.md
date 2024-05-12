@@ -41,6 +41,8 @@ This repository contains profile images suitable for use on team member pages or
   - [Link 27](https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0)
   - [Link 28](https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0)
   - [Link 29](https://www.midjourney.com/jobs/14abe59e-adbe-41a5-9242-8997c2c6ba51?index=0)
+
+High detailed wide headshot photo of a standing portrait photo of a male IT worker in his late 30s, glasses in a grey t-shirt, friendly and helpful, a solid background in #DBE0EE, bright cold light
   - [Link 30](https://www.midjourney.com/jobs/e1655cdd-b61a-4689-ae5f-a14d8e49c0b4)
 
 https://www.midjourney.com/jobs/49ac6f10-0199-4cf2-bcd0-c999e4bbd2df)
