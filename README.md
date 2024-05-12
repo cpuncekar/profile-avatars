@@ -39,6 +39,8 @@ This repository contains profile images suitable for use on team member pages or
   - [Link 25](https://www.midjourney.com/jobs/3556c4a9-d8ad-43f4-872f-42ccd2b8fc12)
   - [Link 26](https://www.midjourney.com/jobs/49ac6f10-0199-4cf2-bcd0-c999e4bbd2df)
   - [Link 27](https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0)
+
+  high detailed wide headshot photo of a standing young Latina adult female smiling with arms crossed with wavy shoulder   length hair, frontal center position, wearing aesthetic formal clothes in light grey colors, solid background in     #DBE0EE color , bright cold white light
   - [Link 28](https://www.midjourney.com/jobs/a5359747-f1e0-4934-a5d8-9ba2c6317e95?index=0)
 
   photo for resume
