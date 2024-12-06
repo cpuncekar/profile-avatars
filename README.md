@@ -1,7 +1,7 @@
 # Profile Images for Projects
 
 ## About
-This repository contains profile images suitable for use on team member pages or other project-related documentation. The images are created using prompts from Midjourney, a platform that generates images based on specific criteria.
+This repository features profile images designed for team member pages or project-related documentation. These images are generated using Midjourney, a platform that creates visuals based on tailored prompts.
 
 ## Information
 
